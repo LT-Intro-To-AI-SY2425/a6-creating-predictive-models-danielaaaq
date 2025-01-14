@@ -13,6 +13,7 @@ Purple = Moddest Spender -- in between
 
 2. What group would a customer who has a medium income and low spending habits be in?
 Group blue , they save while spending little. 
+
 3. Choose one cluster of interest to you. How might the marketing team approach this specific customer group?
 Maybe green, because I try saving some of my money while also trying to spend on items I might like.  
 
